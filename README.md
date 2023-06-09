@@ -1,7 +1,7 @@
 # An <a href="https://www.roblox.com/games/4581966615/Anomic" target="_blank">Anomic</a> Roblox gang and corporation.
 
 We aim to rule Roblox Anomic and put fear into people when they hear our name on the streets.
-##### Progress: Not yet started. 🚀
+### Progress: Not yet started. 🚀
 
 # We run <a href="https://experion-corp.github.io/locations/gas-stations">gas stations</a>, <a href="https://experion-corp.github.io/locations/gun-shops">gun shops</a> and <a href="https://experion-corp.github.io/locations/car-dealers">car dealers</a>.
 
