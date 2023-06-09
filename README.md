@@ -4,4 +4,4 @@ We aim to rule Roblox Atomic and put fear into people when they hear our name on
 
 # We run <a href="https://experion-corp.github.io/locations/gas-stations">gas stations</a>, <a href="https://experion-corp.github.io/locations/gun-shops">gun shops</a> and <a href="https://experion-corp.github.io/locations/car-dealers">car dealers</a>.
 
-## Experion Reward members get 2% back on purchases when purchasing from our gas station! Just be sure to approach the front desk!
+## Experion Reward members get 2% back on purchases when purchasing from our gas station! Just be sure to approach the front desk and get your ID provided by the website.
